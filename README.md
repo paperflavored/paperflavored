@@ -4,7 +4,7 @@
 
 $${\color{green}\text{hello there💚 my name is stair, you can call me anything unless mocking ones, idm at all! }}$$
 
-$${\color{#0fab53}\text{you can find me at the safe server, rarely 18+! I am usually am anywhere but i am mostly in the bakery. 
+$${\color{#0fab53}\text{you can find me at the safe server, rarely 18+! I am usually am anywhere mostly in the bakery. 
 i am barely afk so dw c: }}$$
 
 <p align="center">
@@ -16,7 +16,7 @@ $${\color{#0fab81}\text{you can interact unless if i have dni in my name ofc! I 
 
 $${\color{#0a8a76}\text{i promise i am a nice person! , if i was bad i wasnt just in the mood😢 i love all of my friends dearly im thankful💓 }}$$
 
-$${\color{#077878}\text{i am paperflavored almost on every platform, my username is actually inspired by one of my oc i had since 2018!! }}$$
+$${\color{#077878}\text{i am paperflavored almost on every platform, my username is actually inspired by one of my ocs}}$$
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/1228fb38-6e5b-40c5-bec7-fd13a7843b05" width="450" alt="Image">
@@ -27,7 +27,7 @@ $${\color{#077878}\text{i am paperflavored almost on every platform, my username
 
 $${\color{#f5ce87}\text{iwec: under 11,over 23,intrested in problematic media, timmy/timmyissogoated, Bradley/inlurings, ex friends}}$$
 
-$${\color{#f5b949}\text{i do NOT vent to anyone unless i extremely trust them, please ask me if im open before venting to me}}$$
+$${\color{#f5b949}\text{i do NOT vent to anyone unless i extremely trust them, please ask me if im open before venting}}$$
 
 $${\color{#c96928}\text{due to my mental health these days, please do not ragebait me in a meanful way, i get mad easily}}$$
 
