@@ -1,4 +1,18 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://media1.tenor.com/m/xqG4tlMJYFMAAAAC/chesnaught-pokemon.gif" width="400" alt="stupid dad turns into a tsudere because of his son">
+</p>
+
+$${\color{green}\text{hi}}$$
+
+$${\color{#0fab53}\text{hi}}$$
+
+<p align="center">
+  <img src="" width="400" alt="">
+</p>
+
+$${\color{#0fab81}\text{This\ is\ wip}}$$
+
+
 
 <!--
 **paperflavored/paperflavored** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
