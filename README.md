@@ -1,3 +1,4 @@
+##
 <p align="center">
   <img src="https://media1.tenor.com/m/xqG4tlMJYFMAAAAC/chesnaught-pokemon.gif" width="400" alt="stupid dad turns into a tsudere because of his son">
 </p>
@@ -39,3 +40,4 @@ $${\color{#c96928}\text{due to my mental health these days, please do not rageba
 <p align="center">
   <span style="color: #f78dd6; font-weight: bold;">bye! have a nice day/night/evening, dont forget to follow me if you found me cool😎</span>
 </p>
+##
