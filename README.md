@@ -1,5 +1,13 @@
-## Hi there 👋
+##
 
+<p align="center">
+  <img src="https://media1.tenor.com/m/BVM8citkre0AAAAC/how-we-all-defending-shlep-in-court-court.gif" width="400" alt="ok">
+</p>
+
+
+$${\color{orange}\text{boiiii😼 pmdamian trying to fit in 67}}$$
+
+$${\color{orange}\text{ KISSESBRUMBY TINNY INLURINGS OTHER PEOPLE I FUCKING HATEU ALL }}$$
 <!--
 **paperflavored/paperflavored** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
